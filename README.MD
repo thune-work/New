@@ -21,5 +21,5 @@
 ### You can contact me via:
 #### <img src="https://edent.github.io/SuperTinyIcons/images/svg/facebook.svg" width="16" />  [Facebook](fb.com/thune.serein)
 ##
-##### ©2021 by DATNLQ
+##### ©2021 by thunebae
 <!-- --!>
