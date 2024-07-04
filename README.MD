@@ -7,7 +7,6 @@
 
 - 🔭 I’m currently studying on UIT (a university in Viet Nam)
 - 🌱 I’m currently learning Security Information
-- 🤔 I’m looking for help with somebody who can love me 😝
 - ⚡ Fun fact: I don't play game but I can spent 3 hours to watch streamers play it 	😃
 
 #### 🤔 I am currently focusing on:
